@@ -1,0 +1,1 @@
+If you ar ea developer you enjoys spending time on terminal command line rather than on web and plans a hiking trip or match to some location, get a look of the weather by entering you selected city😄😄⚽🏈🏑🏏
